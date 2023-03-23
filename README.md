@@ -24,7 +24,7 @@
 
 - discord: evee ↯#1312
 
-- instagram: [/eatincatfood](https://instagram.com/eatincatfood)
+- instagram: [@eatincatfood](https://instagram.com/eatincatfood)
 
 - email: [soon™](mailto:fakeemailsorry@whydoyouca.re) 
 

@@ -22,4 +22,4 @@
 
 
 
-[website (soon™)](https://akwa.online) - [brand (soon™)](https://stoned.digital)
+[website (soon™)](https://github.com/Akwaaa) - [brand (soon™)](https://github.com/Akwaaa)

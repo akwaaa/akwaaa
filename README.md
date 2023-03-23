@@ -18,4 +18,6 @@
 
 - i'm a cat person (＾・ﻌ・＾)
 
-- i love all kinds of music, but i listen to a lot of techno and its subgenres
+- i love gaming, computers, DJ'ing...
+
+- i'm working on creating a virtual clothing brand for [Skater XL](https://store.steampowered.com/app/962730/)

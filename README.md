@@ -22,13 +22,13 @@
 
 ### socials/contact me @
 
-- discord: evee ↯#1312
+- discord: evee ↯#1312 / [server (soon™)](https://github.com/Akwaaa)
 
 - instagram: [@eatincatfood](https://instagram.com/eatincatfood)
 
 - soundcloud: [@eatincatfood](https://soundcloud.com/eatincatfood)
 
-- email: [soon™](mailto:fakeemailsorry@whydoyouca.re) 
+- email: [soon™](https://github.com/Akwaaa)
 
 - personal website: [soon™](https://github.com/Akwaaa) 
  

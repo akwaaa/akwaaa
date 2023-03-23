@@ -20,11 +20,13 @@
 
 
 
-### contact me @
+### socials/contact me @
 
 - discord: evee ↯#1312
 
 - instagram: [@eatincatfood](https://instagram.com/eatincatfood)
+
+- soundcloud: [@eatincatfood](https://soundcloud.com/eatincatfood)
 
 - email: [soon™](mailto:fakeemailsorry@whydoyouca.re) 
 

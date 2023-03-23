@@ -4,8 +4,6 @@
 
 - i am currently learning webdev ✿
 
-- contact me at: evee ↯#1312 (discord) 
-
 - my pronouns are she/they, mix them if u want 
 
 - most of my repos are private, you won't find much here...
@@ -22,4 +20,12 @@
 
 
 
-[website (soon™)](https://github.com/Akwaaa) - [brand (soon™)](https://github.com/Akwaaa)
+### contact me @
+
+- discord: evee ↯#1312
+
+- email: [soon™](mailto:fakeemailsorry@whydoyouca.re) 
+
+- [website (soon™)](https://github.com/Akwaaa) 
+ 
+- [brand (soon™)](https://github.com/Akwaaa)

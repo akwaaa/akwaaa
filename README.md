@@ -22,4 +22,4 @@
 
 
 
-[website](https://akwa.online){.btn .btn-default} - [s.d](https://stoned.digital){.btn .btn-default}
+[website (soon™)](https://akwa.online) - [brand (soon™)](https://stoned.digital)

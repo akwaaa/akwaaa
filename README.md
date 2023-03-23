@@ -24,8 +24,10 @@
 
 - discord: evee ↯#1312
 
+- instagram: [/eatincatfood](https://instagram.com/eatincatfood)
+
 - email: [soon™](mailto:fakeemailsorry@whydoyouca.re) 
 
-- [website (soon™)](https://github.com/Akwaaa) 
+- personal website: [soon™](https://github.com/Akwaaa) 
  
-- [brand (soon™)](https://github.com/Akwaaa)
+- fakeskate brand website: [soon™](https://github.com/Akwaaa)

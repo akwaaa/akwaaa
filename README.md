@@ -8,8 +8,6 @@
 
 - my pronouns are she/they, mix them if u want 
 
-- website: coming soon! be patient lmao
-
 - most of my repos are private, you won't find much here...
 
 
@@ -21,3 +19,7 @@
 - i love gaming, computers, DJ'ing...
 
 - i'm working on creating a virtual clothing brand for [Skater XL](https://store.steampowered.com/app/962730/)
+
+
+
+[website](https://akwa.online){.btn .btn-default} - [s.d](https://stoned.digital){.btn .btn-default}

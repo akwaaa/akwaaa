@@ -14,7 +14,7 @@
 
 - i'm a cat person (＾・ﻌ・＾)
 
-- i love gaming, computers, DJ'ing...
+- i love gaming, computers, techno music and DJ'ing...
 
 - i'm working on creating a virtual clothing brand for [Skater XL](https://store.steampowered.com/app/962730/)
 

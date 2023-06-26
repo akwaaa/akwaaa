@@ -1,6 +1,6 @@
 ### heyo! ✧･ﾟ: * 
 
-- my username is akwa/evee, i'm a very lazy individual
+- my username is ākwa/evee, i'm a very lazy individual
 
 - i am currently learning webdev ✿
 
@@ -30,6 +30,6 @@
 
 - email: [soon™](https://github.com/Akwaaa)
 
-- personal website: [soon™](https://github.com/Akwaaa) 
+- personal website: [akwa.online/](https://akwa.online) 
  
 - fakeskate brand website: [soon™](https://github.com/Akwaaa)

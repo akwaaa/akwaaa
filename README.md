@@ -22,7 +22,7 @@
 
 ### socials/contact me @
 
-- discord: @akwa / [server (soon™)](https://github.com/Akwaaa)
+- discord: @akwa
 
 - instagram: [@eatincatfood](https://instagram.com/eatincatfood)
 

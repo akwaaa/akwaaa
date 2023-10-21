@@ -2,7 +2,7 @@
 
 - my username is ākwa/evee, i'm a very lazy individual
 
-- i am currently learning webdev ✿
+- i am currently learning front-end web developing ✿
 
 - my pronouns are she/they, mix them if u want 
 
@@ -16,20 +16,18 @@
 
 - i love gaming, computers, tekno music and DJ'ing...
 
-- i'm working on creating a virtual clothing brand for [Skater XL](https://store.steampowered.com/app/962730/)
-
 
 
 ### socials/contact me @
 
 - discord: @akwa
 
-- instagram: [@eatincatfood](https://instagram.com/eatincatfood)
+- personal website: [akwa.online/](https://akwa.online)
 
-- soundcloud: [@eatincatfood](https://soundcloud.com/eatincatfood)
 
-- email: [soon™](https://github.com/Akwaaa)
 
-- personal website: [akwa.online/](https://akwa.online) 
- 
-- fakeskate brand website: [soon™](https://github.com/Akwaaa)
+### projects !!
+
+- blahaj.systems | [github](https://github.com/BlahajSystems) - [website](https://blahaj.systems)
+
+- stoned.digital | [github](https://github.com/StonedDigital) - [website](https://stoned.digital)

@@ -1,6 +1,6 @@
 ### heyo! ✧･ﾟ: * 
 
-- my username is ākwa/evee, i'm a very lazy individual
+- my username is ākwa, i'm a very lazy individual
 
 - i am currently learning front-end web developing ✿
 

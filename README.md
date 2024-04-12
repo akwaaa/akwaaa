@@ -2,7 +2,7 @@
 
 - my username is ākwa, i'm a very lazy individual
 
-- i am currently learning front-end web developing ✿
+- i am currently learning front-end web-development ✿
 
 - my pronouns are she/they, mix them if u want 
 
@@ -23,6 +23,12 @@
 - discord: @akwa
 
 - personal website: [akwa.online/](https://akwa.online)
+
+- twitter: [@444akwa](https://x.com/444akwa)
+
+- soundcloud (for IRL-DJ): [@eatincatfood](https://soundcloud.com/eatincatfood)
+
+- mixcloud (for VR-DJ): [@444akwa](https://mixcloud.com/444akwa)
 
 
 

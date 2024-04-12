@@ -12,9 +12,9 @@
 
 ### about me :)
 
-- i'm a cat person (＾・ﻌ・＾)
+- i'm a cat girl, or a catgirl, or even both (＾・ﻌ・＾)
 
-- i love gaming, computers, tekno music and DJ'ing...
+- i love gaming, VR, tekno music and it's subgenres (i love free parties <3) and DJ'ing...
 
 
 

@@ -22,13 +22,13 @@
 
 - discord: @akwa
 
-- personal website: [akwa.online/](https://akwa.online)
-
 - twitter: [@444akwa](https://x.com/444akwa)
 
 - soundcloud (for IRL-DJ): [@eatincatfood](https://soundcloud.com/eatincatfood)
 
 - mixcloud (for VR-DJ): [@444akwa](https://mixcloud.com/444akwa)
+
+- personal website: [akwa.online/](https://akwa.online)
 
 
 

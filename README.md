@@ -14,7 +14,7 @@
 
 - i'm a cat girl, or a catgirl, or even both (＾・ﻌ・＾)
 
-- i love gaming, VR, tekno music and it's subgenres (i love free parties <3) and DJ'ing...
+- i love gaming, VR, tekno music and it's subgenres (i love free parties <3), and DJ'ing...
 
 
 
@@ -48,3 +48,4 @@
 
 
 ㋃㏳ .༙྇҉
+(i love silly-looking unicode characters lmao)

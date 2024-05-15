@@ -12,7 +12,7 @@
 
 ### about me :)
 
-- i'm a cat girl, or a catgirl, or even both (＾・ﻌ・＾)
+- i love cats, girls, catgirls, and even all of them at the same time (＾・ﻌ・＾)
 
 - i love gaming, VR, tekno music and it's subgenres (i love free parties <3), and DJ'ing...
 

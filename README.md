@@ -38,7 +38,7 @@
 
 - stoned.digital | [github](https://github.com/StonedDigital) - [website](https://stoned.digital)
 
-
+- Kanab420 | [github](https://github.com/Kanab420) - [website](https://kanab.top)
 
 
 
